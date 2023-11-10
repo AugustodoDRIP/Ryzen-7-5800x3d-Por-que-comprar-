@@ -1,0 +1,1 @@
+# Ryzen-7-5800x3d-Por-que-comprar-
